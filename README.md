@@ -1,15 +1,15 @@
 # YOUHU
-:sunglasses::sunglasses:脱裤吧 地址发布:sunglasses::sunglasses:
+:sunglasses::sunglasses:优狐视频 地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【本站安卓APP下载地址】 ：https://static.tkbw2s.life/app/tk8.apk网页被墙打不开APP可以开
+point_right: 【地址一】：https://www.666youhu.com
 ------
-point_right: 【地址二】：https://www.tkbsrg.life
+point_right: 【地址二】：https://www.69youhu.com
 ------
-:heart: :point_right: 【地址三】 ：https://www.tkbo6j.life/
+:heart: :point_right: 【地址三】 ：https://www.yhsp778.com
 -----
-:heart: :point_right: 【地址四】 ：https://www.tkbxz1.life
+:heart: :point_right: 【地址四】 ：https://www.yhsp11.com
 ------
-:heart: :point_right: 【地址五】 ：https://www.tkbw58.life
+:heart: :point_right: 【地址五】 ：https://www.yhsp857.com
 ------
 
 最近本站被无良网站劫持严重，请用户更改路由器设置防止劫持：
@@ -20,14 +20,11 @@ point_right: 【地址二】：https://www.tkbsrg.life
 
 安卓防劫教程：https://sfkai.com/#android-mobile
 ------
-:heart: :point_right: 【potato】 ：tuokuba520
-------
-
-:heart: :point_right: 【邮箱联系方式】 ：tkbtkb520@gmail.com
+:heart: :point_right: 【邮箱联系方式】 ：dizhi@youhushipin.com
 ------
 :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
 ==
 
 -
 
-:e-mail: __邮箱联系方式: tkbtkb520@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
+:e-mail: __邮箱联系方式: youhushipin@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
