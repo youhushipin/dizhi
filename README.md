@@ -1,9 +1,9 @@
 # YOUHU
 :sunglasses::sunglasses:优狐视频 地址发布:sunglasses::sunglasses:
 ==
-point_right: 【地址一】：https://www.666youhu.com
+:heart: :point_right: 【地址一】：https://www.666youhu.com
 ------
-point_right: 【地址二】：https://www.69youhu.com
+:heart: :point_right: 【地址二】：https://www.69youhu.com
 ------
 :heart: :point_right: 【地址三】 ：https://www.yhsp778.com
 -----
